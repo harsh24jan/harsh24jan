@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Javascipt**
 
-- 📫 How to reach me **harsh2017hiamni@gmail.com**
+- 📫 How to reach me **harsh2017himani@gmail.com**
 
 - ⚡ Fun fact **Excite to work on new projects**
 
